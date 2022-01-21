@@ -1,2 +1,1 @@
-# Maestro of Hikikomori and Professionally NEET
-
+# Programmer 💻. Fast Learner ⚡. Young and Useful 💪
