@@ -1,5 +1,5 @@
 # IT Consultant💻. Fast Learner⚡️. Young and Useful💪. Linux Enjoyer🐧
 
 ### Contacts:
-✉️: sarekashi@tuta.io
+✉️: sarekashi@tuta.io\
 🤙: https://t.me/sarekashi
